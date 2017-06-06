@@ -6,7 +6,8 @@ http://lsj2017.hatenablog.com
 
 http://lsj2017.getenjoyment.net
 
-http://lsj2017.com( 备用)
+http://lsj2017.com 
+(备用)
 
 自动跳转最新可用地址，推荐。
 
